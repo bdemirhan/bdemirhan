@@ -1,4 +1,4 @@
-# Hi, it's Yiğit's GitHub 👋 Thanks for visiting.
+# Hi, it's Berkay's GitHub 👋 Thanks for visiting.
 
 #### I am a computer engineering undergraduate student looking fon an intership position to help me developand learn.I was involved in different communities in the school. I like having different roles in a projects. I want to improve myself and my vision.
 
